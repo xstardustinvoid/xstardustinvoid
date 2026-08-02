@@ -17,10 +17,11 @@
 
 <div align="center">
 ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔
+<pre>
+“𝓪 𝓯𝓻𝓪𝓰𝓶𝓮𝓷𝓽 𝓸𝓯 𝓼𝓽𝓪𝓻𝓭𝓾𝓼𝓽 𝓯𝓵𝓸𝓪𝓽𝓲𝓷𝓰 𝓽𝓱𝓻𝓸𝓾𝓰𝓱 𝓽𝓱𝓮 𝓲𝓷𝓯𝓲𝓷𝓲𝓽𝓮 𝓿𝓸𝓲𝓭.“
+<pre>
 
-᭝ᨳଓ ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ꜱᴡᴇᴇᴛɪᴇ ꜱᴛʀᴀᴡʙᴇʀʀɪᴇꜱ ɢᴀʀᴅᴇɴ!𝜗ৎ
-
-feel free to interact with me! pls don't copy or inspo my skin tks!
+feel free to interact with me! pls don't copy my skin tks!
 
 <div align="center">
 
