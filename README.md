@@ -11,5 +11,9 @@
 ͙͘͡★
 <br/>
 
-᭝ ᨳଓ ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ꜱᴡᴇᴇᴛɪᴇ ꜱᴛʀᴀᴡʙᴇʀʀɪᴇꜱ ɢᴀʀᴅᴇɴ!𝜗ৎ
+<div align="center">
+⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔
+
+᭝ᨳଓ ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ꜱᴡᴇᴇᴛɪᴇ ꜱᴛʀᴀᴡʙᴇʀʀɪᴇꜱ ɢᴀʀᴅᴇɴ!𝜗ৎ
+
 feel free to interact with me! pls don't copy or inspo my skin tks!
