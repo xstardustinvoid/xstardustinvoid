@@ -46,3 +46,9 @@ feel free to interact with me! pls don't copy my skin tks!
 
 <img src="https://github.com/user-attachments/assets/5015dc4a-7eed-4df5-940c-ecbd9864cd11">
 </div>
+<div align="center">
+𝓜𝔂 𝓑𝓮𝓵𝓸𝓿𝓮𝓭𓏲𝄢
+┊ ✩ ┊ ✧ ┊ ┊
+┊ ┊★ ┊ ✩⋆
+┊ ┊ ⊹˚ ⁭ ⁭ ⁭ ⁭ ⁭ ⁭ ⁭ ⁭ ⁭
+✩⋆ ✮
