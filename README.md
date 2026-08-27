@@ -49,7 +49,7 @@ feel free to interact with me! pls don't copy my skin tks!
 <div align="center">
 𝓜𝔂 𝓑𝓮𝓵𝓸𝓿𝓮𝓭𓏲𝄢
 
-</pre>
+<pre>
 ⠀⠀⠀⠀⠀⠀⠀⠄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⣠⣆⡐⠄⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢌⣀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⢆⣹⣐⢯⠀⠀⠀⠀⠀⠀⠀⢀⡀⠀⠀⠀⠀⠀⠰⢀⣼⣿⣶⣶⣤⣄⡀⠀⠀
